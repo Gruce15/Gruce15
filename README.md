@@ -12,6 +12,6 @@
 
 - 👨‍💻 All of my projects are available at **Comming Soon**<!-- [My Portfolio](https://subhamraoniar.com)** -->
 
-- 📫 How to reach me **Discord is - Gruce#1203**
+- 📫 How to reach me **Discord id - Gruce#1203**
 
 - ⚡ Fun fact **I play games**
